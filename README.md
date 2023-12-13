@@ -1,3 +1,4 @@
 
 
-<img src="https://user-images.githubusercontent.com/64970703/179428176-be43cd8a-3b6e-440b-98ad-6af4c369e903.gif" width="850" height="400"/>
+<img src="![ezgif com-optimize](https://github.com/XaiyanLevixk/XaiyanLevixk/assets/64970703/a56e4bb0-9bce-44a3-9deb-f82a1ca5907c)" width="850" height="400"/>
+
