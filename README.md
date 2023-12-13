@@ -1,3 +1,3 @@
 
 
-<img src="https://github.com/XaiyanLevixk/XaiyanLevixk/blob/main/ezgif.com-optimize.gif" width="750" height="400"/>
+<img src="https://github.com/XaiyanLevixk/XaiyanLevixk/blob/main/ezgif.com-optimize.gif" width="850" height="500"/>
